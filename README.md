@@ -16,7 +16,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ I yap a lot... like, A LOT. Especially if we get to know each other a little too much and have the same interests. Please do tell me if I’m annoying you or if I’m oversharing too much information.
 
-☆ I’m not open regarding religion- I DON’T BELIEVE IN RELIGION. If you’d like to discuss this with me, I suggest being respectful and comprehensive. Because it is HIGHLY UNNECESSARY to be forcing your beliefs on me and use the name of whoever God you believe in to guilt-trip and antagonize me for having a different perspective. If my status as an agnostic theist concerns you so much, then you’re not welcome here. WOE IS YOU, FUCKASS.
+☆ I’m not open regarding religion- I DON’T BELIEVE IN RELIGION. If you’d like to discuss this with me, I suggest being respectful and comprehensive. Because it is HIGHLY UNNECESSARY to be forcing your beliefs on me and use the name of whoever God you believe in to guilt-trip and antagonize me for having a different perspective. If my status as an agnostic concerns you so much, then you’re not welcome here. WOE IS YOU, FUCKASS.
 
 ☆ I’ll instantly ignore/block you as I see fit. I don’t want to deal with another episode of “The Chronically Online Chronicles” or a sequel of that crap but outside the internet setting. J.F.O.O.Y.R.O.O.F (Just Fuck Off Or You’ll Receive Obliteration Of Forehead.)
 
