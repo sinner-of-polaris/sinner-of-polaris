@@ -82,3 +82,19 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 𝙸 𝚊𝚖 𝚋𝚞𝚝 𝚊 𝙼𝙾𝚁𝚃𝙰𝙻 𝙱𝙴𝚈𝙾𝙽𝙳 𝙷𝙾𝚁𝙸𝚉𝙾𝙽.
 
 ![4005](https://github.com/user-attachments/assets/d74af852-4dd9-4e15-9162-459f421c738e)
+
+
+𝐒𝐎𝐂𝐈𝐀𝐋 𝐋𝐈𝐍𝐊𝐒:
+
+☆ 𝗜𝗻𝘀𝘁𝗮𝗴𝗿𝗮𝗺:
+@_roease
+
+☆ 𝗧𝗶𝗸𝗧𝗼𝗸:
+@1mortal.beyond.horizon
+
+☆ 𝗗𝗶𝘀𝗰𝗼𝗿𝗱:
+@mr.raszx
+@survivor_100
+
+☆ 𝗦𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲:
+https://httpspolariszx.straw.page 
