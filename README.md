@@ -1,8 +1,9 @@
-                       *+:｡.｡☆｡.｡:+*
-
 I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pseudonym; my real name is ■■■■■■ ■■■■■■ ■■■■■ ■■■■■■. I’m better known as Sinagtala Agbayani or Don Quixote.
-       
-				 .・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
+![4007](https://github.com/user-attachments/assets/74c2903c-4090-49ae-bf7f-763eee98ad32)
+
+
+   .・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
+   
    I welcome you to my account一whether you’re a student, a teacher, a professional, an artist, a writer, a musician, a dog, a cat, the thousand digits of π一whatever you are. But there a few things about me that you should take note of:
 ㅤㅤ
 
@@ -29,7 +30,10 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ I already have a partner. Fuck off if you’re only here to beat me up.
 
-         .・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
+<img width="2048" height="2048" alt="4006" src="https://github.com/user-attachments/assets/6da58690-24cb-4253-b89a-ee81076ce69c" />
+
+
+.・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
 
 »»——> 𝗩𝗘𝗥𝗬 𝗕𝗔𝗦𝗜𝗖 𝗜𝗡𝗙𝗢𝗥𝗠𝗔𝗧𝗜𝗢𝗡...
 
@@ -48,21 +52,33 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤ
 »»——> 𝗙𝗔𝗡𝗗𝗢𝗠𝗦 𝗜’𝗠 𝗜𝗡...
-        
-				  ☆ Undertale
-					☆ Guardian Tales
-					☆ Shingeki no Kyojin
-					☆ 7 Years From Now
-					☆ Project Moon (mainly Limbus Company. I’m still learning about Lobotomy Corporation and Library of Ruina)
-					☆ Murder Drones
-					☆ Internecion Cube
-					☆ The Amazing Digital Circus
-					☆ Hazbin Hotel (I do not support the creator. I just find the show entertaining)
-					☆ Doki Doki Literature Club
-					☆ Project Sekai: Colorful Stage
 
-         .・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
-           𝙸 𝚊𝚒𝚖 𝚏𝚘𝚛 𝚝𝚑𝚎 𝙽𝚘𝚛𝚝𝚑𝚎𝚛𝚗 𝚂𝚝𝚊𝚛.
-        𝙸 𝚊𝚖 𝚋𝚞𝚝 𝚊 𝙼𝙾𝚁𝚃𝙰𝙻 𝙱𝙴𝚈𝙾𝙽𝙳 𝙷𝙾𝚁𝙸𝚉𝙾𝙽.
+☆ Undertale
 
-	![4005](https://github.com/user-attachments/assets/d74af852-4dd9-4e15-9162-459f421c738e)
+☆ Guardian Tales
+
+☆ Shingeki no Kyojin
+
+☆ 7 Years From Now
+
+☆ Project Moon (mainly Limbus Company. I’m still learning about Lobotomy Corporation and Library of Ruina)
+
+☆ Murder Drones
+
+☆ Internecion Cube
+
+☆ The Amazing Digital Circus
+
+☆ Hazbin Hotel (I do not support the creator. I just find the show entertaining)
+
+☆ Doki Doki Literature Club
+
+☆ Project Sekai: Colorful Stage
+
+
+.・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
+
+𝙸 𝚊𝚒𝚖 𝚏𝚘𝚛 𝚝𝚑𝚎 𝙽𝚘𝚛𝚝𝚑𝚎𝚛𝚗 𝚂𝚝𝚊𝚛.
+𝙸 𝚊𝚖 𝚋𝚞𝚝 𝚊 𝙼𝙾𝚁𝚃𝙰𝙻 𝙱𝙴𝚈𝙾𝙽𝙳 𝙷𝙾𝚁𝙸𝚉𝙾𝙽.
+
+![4005](https://github.com/user-attachments/assets/d74af852-4dd9-4e15-9162-459f421c738e)
