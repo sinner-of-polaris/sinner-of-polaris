@@ -102,7 +102,7 @@ https://httpspolariszx.straw.page
 (⚖️: UNDER CONSTRUCTION)
 
 ☆ 𝗔𝘁𝗮𝗯𝗼𝗼𝗸
-(UNDER CONSTRUCTION)
+https://polariszx.atabook.org/
 
 
 
