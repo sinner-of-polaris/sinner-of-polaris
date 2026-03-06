@@ -55,16 +55,27 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 »»——> 𝗙𝗔𝗡𝗗𝗢𝗠𝗦 𝗜’𝗠 𝗜𝗡...
 
 ☆ Undertale
+
 ☆ Guardian Tales
+
 ☆ Shingeki no Kyojin
+
 ☆ 7 Years From Now
+
 ☆ Project Moon (mainly Limbus Company. I’m still learning about Lobotomy Corporation and Library of Ruina)
+
 ☆ Murder Drones
+
 ☆ Internecion Cube
+
 ☆ The Amazing Digital Circus
+
 ☆ Hazbin Hotel (I do not support the creator. I just find the show entertaining)
+
 ☆ Doki Doki Literature Club
+
 ☆ Project Sekai: Colorful Stage
+
 
 .・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
 
