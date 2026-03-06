@@ -1,4 +1,5 @@
-I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pseudonym; my real name is ■■■■■■ ■■■■■■ ■■■■■ ■■■■■■. I’m better known as Sinagtala Agbayani or Don Quixote.
+I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pseudonym; my real name is ■■■■■■ ■■■■■■ ■■■■■ ■■■■■■. I’m better known as Sinagtala Agbayani or Don Quixote一and I’m a filipino.
+
 ![4007](https://github.com/user-attachments/assets/74c2903c-4090-49ae-bf7f-763eee98ad32)
 
 
@@ -37,7 +38,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 »»——> 𝗩𝗘𝗥𝗬 𝗕𝗔𝗦𝗜𝗖 𝗜𝗡𝗙𝗢𝗥𝗠𝗔𝗧𝗜𝗢𝗡...
 
-🎠 • I’m an artist but I’m taking a break for now. I do post doodles and sketches... I just draw whenever I feel like it.
+🎠 • I’m an artist but I just draw whenever I feel like it.
 
 🎠 • Writing stories and world-building are kind of my thing. It’s fun (no it’s not. It’s causing me brain tumor).
 
@@ -45,7 +46,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 🎠 • I like playing MMORPG/Gacha games! But don’t assume I play this or I play that. I don’t fuckin’ know or play every single Gacha game that exists globally. Don’t be a moron and go touch grass, get a job or something.
 
-🎠 • I like reading and collecting books📚. I currently have 4 in my possession and 2 of them are my favourite: “The Little Prince” by Antoine de Saint-Exupéry and “The Ingenious Gentleman Don Quixote of La Mancha” by Miguel de Cervantes.
+🎠 • I like reading and collecting books📚. I currently have a few in my possession and 2 of them are my favourite: “The Little Prince” by Antoine de Saint-Exupéry and “The Ingenious Gentleman Don Quixote of La Mancha” by Miguel de Cervantes.
 
 🎠 • I also do cosplays (mostly improvised) as a hobby.
 ㅤㅤ
@@ -54,27 +55,16 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 »»——> 𝗙𝗔𝗡𝗗𝗢𝗠𝗦 𝗜’𝗠 𝗜𝗡...
 
 ☆ Undertale
-
 ☆ Guardian Tales
-
 ☆ Shingeki no Kyojin
-
 ☆ 7 Years From Now
-
 ☆ Project Moon (mainly Limbus Company. I’m still learning about Lobotomy Corporation and Library of Ruina)
-
 ☆ Murder Drones
-
 ☆ Internecion Cube
-
 ☆ The Amazing Digital Circus
-
 ☆ Hazbin Hotel (I do not support the creator. I just find the show entertaining)
-
 ☆ Doki Doki Literature Club
-
 ☆ Project Sekai: Colorful Stage
-
 
 .・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
 
@@ -98,3 +88,11 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ 𝗦𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲:
 https://httpspolariszx.straw.page 
+(⚖️: UNDER CONSTRUCTION)
+
+☆ 𝗔𝘁𝗮𝗯𝗼𝗼𝗸
+(UNDER CONSTRUCTION)
+
+
+
+[SOON TO BE UPDATED]
