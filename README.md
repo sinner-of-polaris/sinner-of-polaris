@@ -25,7 +25,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ You may address me however you want, though I will not tolerate any insulting nicknames or pet names (‘dear’ is an exception) 𝙀𝙎𝙋𝙀𝘾𝙄𝘼𝙇𝙇𝙔 if we aren’t close friends.
 
-☆ I’m gender fluid, pansexual, and neurodivergent. I’m a member of multiple fandoms and I do OC×OC, OC×Canon, and Yumeshipping.
+☆ I’m gender fluid, pansexual, and neurodivergent. I’m a member of multiple fandoms and I do OC×OC, OC×Canon, and yumeshipping.
 
 ☆ I heavily fictionkin Don Quixote/Sancho from Limbus Company and Polaris (as in the star that can be seen overhead in the North Pole) :3
 
@@ -70,8 +70,6 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ The Amazing Digital Circus
 
-☆ Hazbin Hotel (I do not support the creator. I just find the show entertaining)
-
 ☆ Doki Doki Literature Club
 
 ☆ Project Sekai: Colorful Stage
@@ -87,9 +85,6 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 𝐒𝐎𝐂𝐈𝐀𝐋 𝐋𝐈𝐍𝐊𝐒:
 
-☆ 𝗜𝗻𝘀𝘁𝗮𝗴𝗿𝗮𝗺:
-@_roease
-
 ☆ 𝗧𝗶𝗸𝗧𝗼𝗸:
 @1mortal.beyond.horizon
 
@@ -98,10 +93,11 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 @survivor_100
 
 ☆ 𝗦𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲:
-https://httpspolariszx.straw.page 
+https://httpspolariszx.straw.page
+
 (⚖️: UNDER CONSTRUCTION)
 
-☆ 𝗔𝘁𝗮𝗯𝗼𝗼𝗸
+☆ 𝗔𝘁𝗮𝗯𝗼𝗼𝗸:
 https://polariszx.atabook.org/
 
 
