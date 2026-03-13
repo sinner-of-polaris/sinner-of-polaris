@@ -15,9 +15,9 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ My social battery is inconsistent一there may be a time I’m full of enthusiasm一or I might just be dry as shit. It depends.
 
-☆ I yap a lot... like, A LOT. Especially if we get to know each other a little too much and have the same interests. Please do tell me if I’m annoying you or if I’m oversharing too much information.
-
 ☆ I’m not open regarding religion- I DON’T BELIEVE IN RELIGION. If you’d like to discuss this with me, I suggest being respectful and comprehensive. Because it is HIGHLY UNNECESSARY to be forcing your beliefs on me and use the name of whoever God you believe in to guilt-trip and antagonize me for having a different perspective. If my status as an agnostic concerns you so much, then you’re not welcome here. WOE IS YOU, FUCKASS.
+
+☆ I have a really fucked up mental health. Period. No questions asked.
 
 ☆ I’ll instantly ignore/block you as I see fit. I don’t want to deal with another episode of “The Chronically Online Chronicles” or a sequel of that crap but outside the internet setting. J.F.O.O.Y.R.O.O.F (Just Fuck Off Or You’ll Receive Obliteration Of Forehead.)
 
@@ -27,7 +27,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ I’m gender fluid, pansexual, and neurodivergent. I’m a member of multiple fandoms and I do OC×OC, OC×Canon, and yumeshipping.
 
-☆ I heavily fictionkin Don Quixote/Sancho from Limbus Company and Polaris (as in the star that can be seen overhead in the North Pole) :3
+☆ I heavily fictionkin Don Quixote/Sancho from Limbus Company. I also conceptkin Polaris (not sure if that’s the right way to say it but you get my point)
 
 ☆ I already have a partner. Fuck off if you’re only here to beat me up.
 
