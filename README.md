@@ -9,7 +9,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 ㅤㅤ
 
 ㅤㅤㅤㅤㅤ   
-☆ I’m a minor, so please be considerate when interacting with me. I’m socially awkward but I can adapt in conversations. I somewhat lack self-awareness and I am not-so-really good with picking the right terminologies sometimes, so please educate me whenever I’m wrong. I allow anyone to communicate with me but I hope you can respect my boundaries just as much I’ll respect yours.
+☆ Please be considerate when interacting with me. I’m socially awkward but I can adapt in conversations. I somewhat lack self-awareness and I am not-so-really good with picking the right terminologies sometimes, so please educate me whenever I’m wrong. I allow anyone to communicate with me but I hope you can respect my boundaries just as much I’ll respect yours.
 
 ☆ Ladies and gents, do tell if I’m going overboard with my jokes or if my humour makes you uncomfortable. I sometimes can’t control myself with how I humour with this and that. Any strong emotion gets me quite uncontrollable (also happens outside the internet), but I manage them most of the time just fine.
 
