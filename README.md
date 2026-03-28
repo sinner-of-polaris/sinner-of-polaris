@@ -36,9 +36,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 .・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
 
-»»——> 𝗩𝗘𝗥𝗬 𝗕𝗔𝗦𝗜𝗖 𝗜𝗡𝗙𝗢𝗥𝗠𝗔𝗧𝗜𝗢𝗡...
-
-🎠 • I’m an artist but I just draw whenever I feel like it.
+»»——> 𝗩𝗘𝗥𝗬 𝗕𝗔𝗦𝗜𝗖 𝗜𝗡𝗙𝗢𝗥𝗠𝗔𝗧𝗜𝗢𝗡...      🎠 • I’m an artist but I just draw whenever I feel like it.
 
 🎠 • Writing stories and world-building are kind of my thing. It’s fun (no it’s not. It’s causing me brain tumor).
 
@@ -52,27 +50,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 ㅤㅤ
 
 ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤ
-»»——> 𝗙𝗔𝗡𝗗𝗢𝗠𝗦 𝗜’𝗠 𝗜𝗡...
-
-☆ Undertale
-
-☆ Guardian Tales
-
-☆ Shingeki no Kyojin
-
-☆ 7 Years From Now
-
-☆ Project Moon (mainly Limbus Company. I’m still learning about Lobotomy Corporation and Library of Ruina)
-
-☆ Murder Drones
-
-☆ Internecion Cube
-
-☆ The Amazing Digital Circus
-
-☆ Doki Doki Literature Club
-
-☆ Project Sekai: Colorful Stage
+»»——> 𝗙𝗔𝗡𝗗𝗢𝗠𝗦 𝗜’𝗠 𝗜𝗡...               ☆ Undertale                           ☆ Guardian Tales                      ☆ Shingeki no Kyojin                  ☆ 7 Years From Now                    ☆ Project Moon (mainly Limbus Company. I’m still learning about Lobotomy Corporation and Library of Ruina)      ☆ Murder Drones                       ☆ Internecion Cube                    ☆ The Amazing Digital Circus          ☆ Doki Doki Literature Club           ☆ Project Sekai: Colorful Stage
 
 
 .・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
@@ -85,17 +63,11 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 𝐒𝐎𝐂𝐈𝐀𝐋 𝐋𝐈𝐍𝐊𝐒:
 
-☆ 𝗧𝗶𝗸𝗧𝗼𝗸:
-@1mortal.beyond.horizon
-
 ☆ 𝗗𝗶𝘀𝗰𝗼𝗿𝗱:
-@mr.raszx
-@survivor_100
+@mr.raszx                  @survivor_100
 
 ☆ 𝗦𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲:
-https://httpspolariszx.straw.page
-
-(⚖️: UNDER CONSTRUCTION)
+https://httpspolariszx.straw.page  (⚖️: UNDER CONSTRUCTION)
 
 ☆ 𝗔𝘁𝗮𝗯𝗼𝗼𝗸:
 https://polariszx.atabook.org/
