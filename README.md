@@ -9,7 +9,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
    
    
    I welcome you to my account. Whether you’re a student, a teacher, a professional, an artist, a writer, a musician, a dog, a cat, the thousand digits of π一whatever you are. But there a few things that you should take note of if you want to interact or be friends with me:
-(If you must, please read the whole text.)
+(If you must, please read the whole text. I know it’s long and I’m sorry if it bores you to read all this shit but if you are willing to get to know me, these will help you know a bit about me.)
 
 ㅤㅤㅤㅤㅤ   
 ☆ Please be considerate when interacting with me. I’m socially awkward but I can adapt in conversations. I somewhat lack self-awareness and I am not-so-really good with picking the right terminologies sometimes, so please educate me whenever I’m wrong. I allow anyone to communicate with me but I hope you can respect my boundaries just as much I’ll respect yours.
@@ -20,7 +20,9 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ I have a really fucked up mental health and I am very self-conscious about myself : )  Please be gentle with me. I really want to go to a therapist or a psychologist someday. I admit, I am not okay and will probably never be.
 
-☆ My social battery is inconsistent一there may be a time I’m full of enthusiasm一or I might just be dry as shit. It depends. I mostly put up a note that says D.N.I or D.N.D (with my partner as an exception). But don’t be fooled, you may interact! I just put that up because there are specific people I do not want to converse with.
+☆ My social battery is inconsistent一there may be a time I’m full of enthusiasm一or I might just be dry as shit. It depends. I am selectively verbal so I might not respond to your message and instead will use gestures such as nodding, booping, head shake, head turn, expressions, etc. I have ponies that have tags such as SV on them.
+
+☆ Cuddles, hugs, and kisses are freely accepted and appreciated. UNLESS you mean those gestures romantically (see bullet no. 13)
 
 ☆ Tone indicators in texts would help a ton for me especially if you are a dry texter because I cannot just guess if you are feeling mad, annoyed or something. This isn’t mandatory though. You can text me however you want. Just please clarify if you’re feeling anything negative especially if it’s towards me. I’ll kindly back off.
 
