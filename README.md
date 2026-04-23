@@ -20,9 +20,9 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ I have a really fucked up mental health and I am very self-conscious about myself : )  Please be gentle with me. I really want to go to a therapist or a psychologist someday. I admit, I am not okay and will probably never be.
 
-☆ My social battery is inconsistent一there may be a time I’m full of enthusiasm一or I might just be dry as shit. It depends. I am selectively verbal so I might not respond to your message and instead will use gestures such as nodding, booping, head shake, head turn, expressions, etc. I have ponies that have tags such as SV on them.
+☆ My social battery is inconsistent一there may be a time I’m full of enthusiasm一or I might just be dry as shit. It depends. I am selectively verbal so I might not respond to your message and instead will use gestures such as nodding, booping, head shake, head turn, expressions, etc. I’ve some ponies that have tags such as SV on them. This still applies even to ponies without tags.
 
-☆ Cuddles, hugs, and kisses are freely accepted and appreciated. UNLESS you mean those gestures romantically (see bullet no. 13)
+☆ Cuddles, hugs, and kisses are freely accepted and appreciated from anyone. UNLESS you mean those gestures romantically (see bullet no. 13)
 
 ☆ Tone indicators in texts would help a ton for me especially if you are a dry texter because I cannot just guess if you are feeling mad, annoyed or something. This isn’t mandatory though. You can text me however you want. Just please clarify if you’re feeling anything negative especially if it’s towards me. I’ll kindly back off.
 
@@ -36,7 +36,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 
 ☆ I heavily fictionkin Don Quixote/Sancho from Limbus Company. I also conceptkin the northern star, Polaris (not sure if that’s the right way to say it... but you get my point.)
 
-☆ I already have a partner.
+☆ I already have a partner. An ACTUAL I.R.L partner and I love him. Got a problem? G.T.F.O. I still have to remind your stubborn ass over and over that I have a partner? O.O.F. Refusal to cooperate or leave me be? I’ll take your ass straight to the meat grinder behind Mephistopheles. You’ll do a great enkephalin.
 
 <img width="2048" height="2048" alt="4006" src="https://github.com/user-attachments/assets/6da58690-24cb-4253-b89a-ee81076ce69c" />
 
