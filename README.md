@@ -1,3 +1,5 @@
+$${\color{grey}Beyond\space\color{grey}the\space\color{grey}horizon\space\color{grey}is\space\color{grey}a\space\color{grey}world\space\color{grey}of\space\color{grey}endless\space\color{grey}nights.}$$
+
 ‼️This is created mainly as an introductory text for PonyTown. 
 
 I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pseudonym; my real name is ■■■■■■ ■■■■■■ ■■■■■ ■■■■■■. I’m better known as Sinagtala Agbayani or Don Quixote.
