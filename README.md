@@ -41,7 +41,7 @@ I’m Angel Sinagtala Realonda Magsaysay一and to make it clear, that’s my pse
 <img width="2048" height="2048" alt="4006" src="https://github.com/user-attachments/assets/6da58690-24cb-4253-b89a-ee81076ce69c" />
 
 
-.・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
+   .・。.・゜✭・⋇⋆✦⋆⋇・✫・゜・。.
 
 »»——> 𝗩𝗘𝗥𝗬 𝗕𝗔𝗦𝗜𝗖 𝗜𝗡𝗙𝗢𝗥𝗠𝗔𝗧𝗜𝗢𝗡...
 🎠 • I’m an artist and I draw whenever I feel like drawing. 
