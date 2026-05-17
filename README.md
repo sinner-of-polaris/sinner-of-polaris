@@ -1,1 +1,46 @@
-UNDER CONSTRUCTION...
+$${\color{yellow}O’\space\color{yellow}Polaris!\space\color{yellow}Heed\space\color{yellow}my\space\color{yellow}plea...}$$
+
+<img src="https://img.sanishtech.com/u/86122813578da9ca5516c84976f5a998.png" alt="1000041802" width="1536" height="2048" loading="lazy" style="max-width:100%;height:auto;">
+
+$${\color{grey}Beyond\space\color{grey}the\space\color{grey}horizon}$$
+$${\color{grey}is\space\color{grey}a\space\color{grey}world\space\color{grey}of\space\color{grey}endless\space\color{grey}nights.}$$
+
+(𝘈𝘳𝘵 𝘣𝘺 𝘮𝘺 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘖𝘖𝘔𝘍 𝘪𝘯 𝘍𝘢𝘤𝘦𝘣𝘰𝘰𝘬: $${\color{green}𝘓𝘢𝘯𝘤𝘦\space\color{green}𝘊𝘩𝘳𝘪𝘴𝘵𝘰𝘱𝘩𝘦𝘳}$$! 𝘌𝘥𝘪𝘵 𝘪𝘴 𝘣𝘺 𝘮𝘦.)
+ㅤㅤ
+
+ㅤㅤ
+
+ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤ
+ㅤㅤ
+
+ㅤㅤ
+
+ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   
+‼️This is created mainly as an introductory text for PonyTown. 
+
+.・。.・゜✭・.・✫・゜・。.
+    
+Hi! You might’ve seen me around Ponytown. I am Sinagtala Agbayani一or better known as Don Quixote. I am a Filipino artist and cosplayer!⭐
+
+I welcome you to my account. Whether you’re a student, a teacher, a professional, an artist, a writer, a musician, a dog, a cat, the thousand digits of π一whatever you are! If you’d like to get to know more about me, visit my main strawpage and other social links!
+
+☆ 𝗦𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲
+
+$${\color{orange}𝗠𝗔𝗜𝗡\space\color{orange}𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘}$$ ⚖️: https://httpssinnerofjustice.straw.page
+
+$${\color{yellow}𝗙𝗢𝗥\space\color{yellow}𝗚𝗜𝗠𝗠𝗜𝗖𝗞𝗦\space\color{yellow}𝗔𝗡𝗗\space\color{yellow}𝗠𝗘𝗦𝗦𝗔𝗚𝗘𝗦}$$ ⭐: https://httpspolariszx.straw.page
+ㅤㅤ
+
+
+☆ 𝗔𝘁𝗮𝗯𝗼𝗼𝗸
+
+https://polariszx.atabook.org/?page=1
+ㅤㅤ
+
+ㅤㅤ
+
+ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   
+👥𝐒𝐎𝐂𝐈𝐀𝐋 𝐋𝐈𝐍𝐊𝐒
+
+☆ 𝗗𝗶𝘀𝗰𝗼𝗿𝗱
+@survivor_100
