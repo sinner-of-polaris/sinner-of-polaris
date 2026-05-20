@@ -1,6 +1,6 @@
 $${\color{yellow}O’\space\color{yellow}Polaris!\space\color{yellow}Heed\space\color{yellow}my\space\color{yellow}plea...}$$
 
-<img src="https://img.sanishtech.com/u/86122813578da9ca5516c84976f5a998.png" alt="1000041802" width="1536" height="2048" loading="lazy" style="max-width:100%;height:auto;">
+<img src="https://cdn.phototourl.com/free/2026-05-20-03c91648-a51f-4b05-b45a-7fe2a94bf044.jpg" alt="1000041802" width="1536" height="2048" loading="lazy" style="max-width:100%;height:auto;">
 
 $${\color{grey}Beyond\space\color{grey}the\space\color{grey}horizon}$$
 $${\color{grey}is\space\color{grey}a\space\color{grey}world\space\color{grey}of\space\color{grey}endless\space\color{grey}nights.}$$
