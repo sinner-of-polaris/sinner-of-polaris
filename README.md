@@ -24,23 +24,25 @@ Hi! You might’ve seen me around Ponytown. I am Sinagtala Agbayani一or better 
 
 I welcome you to my account. Whether you’re a student, a teacher, a professional, an artist, a writer, a musician, a dog, a cat, the thousand digits of π一whatever you are! If you’d like to get to know more about me, visit my main strawpage and other social links!
 
+👥𝐒𝐎𝐂𝐈𝐀𝐋 𝐋𝐈𝐍𝐊𝐒
+
 ☆ 𝗦𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲
 
 $${\color{orange}𝗠𝗔𝗜𝗡\space\color{orange}𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘}$$ ⚖️: https://httpssinnerofjustice.straw.page
 
 $${\color{yellow}𝗙𝗢𝗥\space\color{yellow}𝗚𝗜𝗠𝗠𝗜𝗖𝗞𝗦\space\color{yellow}𝗔𝗡𝗗\space\color{yellow}𝗠𝗘𝗦𝗦𝗔𝗚𝗘𝗦}$$ ⭐: https://httpspolariszx.straw.page
-ㅤㅤ
 
 
 ☆ 𝗔𝘁𝗮𝗯𝗼𝗼𝗸
 
 https://polariszx.atabook.org/?page=1
-ㅤㅤ
 
-ㅤㅤ
 
-ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   
-👥𝐒𝐎𝐂𝐈𝐀𝐋 𝐋𝐈𝐍𝐊𝐒
+☆ 𝗣𝗿𝗼𝗻𝗼𝘂𝗻𝘀 𝗣𝗮𝗴𝗲
+
+https://en.pronouns.page/@fates_ink
+
 
 ☆ 𝗗𝗶𝘀𝗰𝗼𝗿𝗱
+
 @survivor_100
