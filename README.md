@@ -9,20 +9,21 @@ $${\color{grey}is\space\color{grey}a\space\color{grey}world\space\color{grey}of\
 ㅤㅤ
 
 ㅤㅤ
+ㅤㅤ
 
-ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤ
+ㅤㅤ
+
+ㅤㅤ"ㅤㅤ𝐓𝐅𝐂 𝙵𝙰𝙽𝙳𝙾𝙼 , 𝙵𝙸𝙻𝙸𝙿𝙸𝙽𝙾𝚂 \  ㅤㅤㅤㅤㅤ   ɪᴡᴇᴄ , ʜᴇᴀᴠʏ ᴅɴɪᴜɪᴅ/ᴅɴɪᴜᴄғ  ㅤㅤㅤㅤㅤ . . .ㅤㅤㅤㅤㅤ   ✧･ﾟ: *✧･ﾟ:*ㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   
 ㅤㅤ
 
 ㅤㅤ
 
 ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   
-‼️This is created mainly as an introductory text for PonyTown. 
+‼️This is created mainly as an introductory text for PonyTown.
 
-.・。.・゜✭・.・✫・゜・。.
-    
-Hi! You might’ve seen me around Ponytown. I am Sinagtala Agbayani一or better known as Don Quixote. I am a Filipino artist and cosplayer!⭐
+ㅤㅤㅤ.・。.・゜✭・.・✫・゜・。.
 
-I welcome you to my account. Whether you’re a student, a teacher, a professional, an artist, a writer, a musician, a dog, a cat, the thousand digits of π一whatever you are! If you’d like to get to know more about me, visit my main strawpage and other social links!
+Hi! You might’ve seen me around Ponytown. I am Sinagtala Agbayani一or better known as Don Quixote. I am a Filipino artist and cosplayer!⭐ If you’d like to get to know more about me, visit my main strawpage and other social links!
 
 👥𝐒𝐎𝐂𝐈𝐀𝐋 𝐋𝐈𝐍𝐊𝐒
 
