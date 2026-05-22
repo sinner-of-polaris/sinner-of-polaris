@@ -11,39 +11,5 @@ $${\color{grey}is\space\color{grey}a\space\color{grey}world\space\color{grey}of\
 ㅤㅤ
 ㅤㅤ
 
-ㅤㅤ
-
-ㅤㅤ"ㅤㅤ𝐓𝐅𝐂 𝙵𝙰𝙽𝙳𝙾𝙼 , 𝙵𝙸𝙻𝙸𝙿𝙸𝙽𝙾𝚂 \  ㅤㅤㅤㅤㅤ ㅤㅤɪᴡᴇᴄ , ʜᴇᴀᴠʏ ᴅɴɪᴜɪᴅ/ᴅɴɪᴜᴄғ  ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ. . .ㅤㅤㅤㅤㅤ   ✧･ﾟ: *✧･ﾟ:*ㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   
-ㅤㅤㅤㅤ𝗣.𝗦:ㅤㅤғɪʟɪᴘɪɴᴏs ᴏғ ᴛʜᴇ sᴀᴍᴇ ғᴀɴᴅᴏᴍ ᴀɴᴅ ɪɴᴛʀᴇsᴛs ᴀs ɪ, ғᴇᴇʟ ғʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ! ᴏᴛʜᴇʀᴡɪsᴇ, ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴇxᴛʀᴇᴍᴇ ᴄᴀᴜᴛɪᴏɴ. ᴍʏ ᴇxᴘᴇʀɪᴇɴᴄᴇs ᴡɪᴛʜ ғɪʟɪᴘɪɴᴏs ɪɴ ᴘᴏɴʏᴛᴏᴡɴ ᴀʀᴇ ғᴜᴄᴋɪɴɢ ʙᴀᴅ. ᴘʟᴇᴀsᴇ ᴅᴏ ᴜɴᴅᴇʀsᴛᴀɴᴅ ɪ’ᴍ ᴊᴜsᴛ ʙᴇɪɴɢ ᴄᴀᴜᴛɪᴏᴜs. ᴀʏᴏᴋᴏ sᴀ ᴘɪɴᴏʏ ɴᴀ ғᴇᴇʟɪɴɢ ᴄʟᴏsᴇ. ᴍᴀᴛᴜᴛᴏ ᴋᴀʏᴏ ɢᴜᴍᴀʟᴀɴɢ.
-
-ㅤㅤ
-
-ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   
-‼️This is created mainly as an introductory text for PonyTown.
-
-ㅤㅤㅤ.・。.・゜✭・.・✫・゜・。.
-
-Hi! You might’ve seen me around Ponytown. I am Sinagtala Agbayani一or better known as Don Quixote. I am a Filipino artist and cosplayer!⭐ If you’d like to get to know more about me, visit my main strawpage and other social links!
-
-👥𝐒𝐎𝐂𝐈𝐀𝐋 𝐋𝐈𝐍𝐊𝐒
-
-☆ 𝗦𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲
-
-$${\color{orange}𝗠𝗔𝗜𝗡\space\color{orange}𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘}$$ ⚖️: https://httpssinnerofjustice.straw.page
-
-$${\color{yellow}𝗙𝗢𝗥\space\color{yellow}𝗚𝗜𝗠𝗠𝗜𝗖𝗞𝗦\space\color{yellow}𝗔𝗡𝗗\space\color{yellow}𝗠𝗘𝗦𝗦𝗔𝗚𝗘𝗦}$$ ⭐: https://httpspolariszx.straw.page
-
-
-☆ 𝗔𝘁𝗮𝗯𝗼𝗼𝗸
-
-https://polariszx.atabook.org/?page=1
-
-
-☆ 𝗣𝗿𝗼𝗻𝗼𝘂𝗻𝘀 𝗣𝗮𝗴𝗲
-
-https://en.pronouns.page/@fates_ink
-
-
-☆ 𝗗𝗶𝘀𝗰𝗼𝗿𝗱
-
-@survivor_100
+ㅤㅤ"ㅤㅤ𝐓𝐅𝐂 𝙵𝙰𝙽𝙳𝙾𝙼 , 𝙵𝙸𝙻𝙸𝙿𝙸𝙽𝙾𝚂 \  ㅤㅤㅤㅤㅤ ㅤㅤɪᴡᴇᴄ , ʜᴇᴀᴠʏ ᴅɴɪᴜɪᴅ/ᴅɴɪᴜᴄғ  ㅤㅤㅤㅤㅤ ㅤㅤㅤ. . .ㅤㅤㅤㅤㅤ   ✧･ﾟ: *✧･ﾟ:*ㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤ   
+ㅤㅤㅤㅤ𝗣.𝗦:ㅤㅤғɪʟɪᴘɪɴᴏs ᴏғ ᴛʜᴇ sᴀᴍᴇ ғᴀɴᴅᴏᴍ ᴀɴᴅ ɪɴᴛʀᴇsᴛs ᴀs ɪ, ғᴇᴇʟ ғʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ! ᴏᴛʜᴇʀᴡɪsᴇ, ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴇxᴛʀᴇᴍᴇ ᴄᴀᴜᴛɪᴏɴ—ᴏʀ ᴊᴜsᴛ ᴅᴏɴ’ᴛ. ᴍʏ ᴇxᴘᴇʀɪᴇɴᴄᴇs ᴡɪᴛʜ (sᴏᴍᴇ) ғɪʟɪᴘɪɴᴏs ɪɴ ᴘᴏɴʏᴛᴏᴡɴ ᴀʀᴇ ғᴜᴄᴋɪɴɢ ʙᴀᴅ. ᴘʟᴇᴀsᴇ ᴅᴏ ᴜɴᴅᴇʀsᴛᴀɴᴅ ɪ’ᴍ ᴊᴜsᴛ ʙᴇɪɴɢ ᴄᴀᴜᴛɪᴏᴜs ᴇsᴘᴇᴄɪᴀʟʟʏ ᴛᴏ ᴛʜᴏsᴇ ᴡʜᴏ ᴀʀᴇ ɴᴏᴛ ғᴀᴍɪʟɪᴀʀ ᴡɪᴛʜ ᴛʜᴇ ғᴀɴᴅᴏᴍs ɪ’ᴍ ᴘᴀʀᴛ
